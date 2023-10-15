@@ -1,0 +1,2 @@
+# hayat başladı
+gerçekten başladı
